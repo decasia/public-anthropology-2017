@@ -102,5 +102,6 @@ The discourse that constitutes it is not merely a different or alternative idiom
 
 ---
 
-## Name a campus discourse that is regarded as indecorous
-## And say why!
+### Name a moment on campus when you felt moved...
+### by public speech with "great urgency and intimate import."
+
