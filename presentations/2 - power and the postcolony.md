@@ -13,7 +13,7 @@
 
 ---
 
-## Some standard images of holidays
+## Some standard images of politics
 
 - Parliamentary debate
 - Street marches
