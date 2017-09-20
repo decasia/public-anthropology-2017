@@ -112,7 +112,7 @@ What I want to suggest in this article is that [my] scenario in fact arises from
 
 # Reading case study: Dubbeld and Gillespie
 
-What is Dubbeld and Gillespie's view about public anthropololgy after Apartheid? 
+What is Dubbeld and Gillespie's view about public anthropology after Apartheid? 
 
 - It should be directly relevant to public problems.
 - It should reconnect critical analysis to political action.
