@@ -1,3 +1,5 @@
+autoscale: true
+
 # Power and the postcolony
 
 ---
