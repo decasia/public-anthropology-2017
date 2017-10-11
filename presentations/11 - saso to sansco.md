@@ -170,31 +170,3 @@ SANSCO organised and was open only to black students and was thus an exclusively
 # Learning about boredom
 
 "My student was polite enough to look attentive but in my honest opinion, I don’t think she was particularly interested. She nodded and smiled as I spoke but it seemed to me that she didn’t feel that the topic was particularly important."
-
----
-
-# Learning about history
-
-"It feels like even with what is being taught within lectures feels as if the past of apartheid is never being left behind, and that we are not moving forward as a nation because of the constant bringing back of the evil deeds of the past which this generation had no part to play in."
-
----
-
-# Learning about being split
-
-"In South Africa, the debate surrounding decolonisation and white supremacy is a very sensitive debate. The opinions on these topics are split quite drastically. The topic I chose to address in the teaching assignment was the class dynamic, and the absence of a complete inclusive class structure... The study of anthropology is doing more harm in the society, than good. It divides the races even more, creating either far leftist ideologies or infuriating rightists."
-
----
-
-# Learning about being split
-
-"There is no engagement besides white guilt that is expressed when discussing such content due to the propaganda that is infused by the dominant white hetero-patriarchal system within most spheres of the Stellenbosch student community."
-
----
-
-# Learning about being split
-
-"However the only negative that I would mention is in regards to how tiring and exhausting it was to educate a white liberal, on why the request of transcending race is impossible ... is to negate its impact on the lives of numerous people."
-
----
-
-# What do we do about being split?
