@@ -145,7 +145,7 @@ In Nyamnjoh and Jua's analysis, when is learning alienating?
 
 # Nyamnjoh and Jua:
 
-> Nyang has captured this predicament as "apathological case of xenophilia," whereby Africans are brought to value things Western "not for their efficacy but simply because of their foreignness", thereby consuming to death their creativity and dignity, their very own humanity. (8)
+> Nyang has captured this predicament as "a pathological case of xenophilia," whereby Africans are brought to value things Western "not for their efficacy but simply because of their foreignness", thereby consuming to death their creativity and dignity, their very own humanity. (8)
 
 ---
 
