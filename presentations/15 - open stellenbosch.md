@@ -23,16 +23,27 @@ autoscale: true
 
 ---
 
-# How does an anthropologist listen?
+## How does an anthropologist listen?
 
 ---
 
 # How does an anthropologist listen?
 
-- Surrender your narcissism.
+- Surrender your structural narcissism.
 - Tune in to their interests.
 - Tune in to the context.
 - Listen slowly.
+
+---
+
+## To whom does one listen?
+
+## — to people not like you;
+## to the "other."
+
+---
+
+### This does not presume that you should give up any of your own views, just that you should slow them down momentarily.
 
 ---
 
